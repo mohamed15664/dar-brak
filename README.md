@@ -1,2 +1,0 @@
-# dar-brak
-lill pomj
